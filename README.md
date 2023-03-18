@@ -1,3 +1,3 @@
 # Mine_St
-about my studies - 
+About my studies - 
 *Thank you!*
